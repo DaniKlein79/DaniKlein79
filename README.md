@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Dani Klein
-- 👀 I’m interested in learn 
+- 👀 I’m interested in learning 
 - 🌱 I’m currently learning CC50
 - 💞️ I’m not looking to collaborate 
 - 📫 You can reach me by LinkedIN 
