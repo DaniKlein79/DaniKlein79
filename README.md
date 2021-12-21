@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @DaniKlein79
+- 👋 Hi, I’m Dani Klein
 - 👀 I’m interested in learn 
 - 🌱 I’m currently learning CC50
 - 💞️ I’m not looking to collaborate 
